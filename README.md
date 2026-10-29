@@ -1,3 +1,3 @@
 # Link to colab
 
-https://we.tl/t-2cXC3NNxZ6VKEpXg
+https://we.tl/t-GUEtA4DTDc8xR0cc
